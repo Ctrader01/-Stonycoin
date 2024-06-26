@@ -1,4 +1,4 @@
-# 🐾 $Stony Montana
+# $Stony Montana
 
 Welcome to $Stony Montana, the meme coin that merges cryptocurrency excitement with cannabis legalization advocacy.
 
