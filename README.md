@@ -1,6 +1,6 @@
 # 🐾 $Stony Montana
 
-Welcome to $Stony Montana, the meme coin that merges cryptocurrency excitement with cannabis legalization advocacy, led by Blaze the Ferret.
+Welcome to $Stony Montana, the meme coin that merges cryptocurrency excitement with cannabis legalization advocacy.
 
 ## 🌿 Introduction
 
